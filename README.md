@@ -1,4 +1,4 @@
-Oi, me chamo **@rosivaldocamposjr**
+Oi, me chamo **Rosivaldo Campos**
 
 Sou formado em **Análise e Desenvolvimento de Sistemas**
 
